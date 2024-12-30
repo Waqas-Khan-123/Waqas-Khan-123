@@ -62,7 +62,7 @@ All tools and processes I employ are **HIPAA-compliant** to ensure the highest l
 ---
 
 ## 📞 Let's Connect!  
-- **Email**: khanqaqas_12@hotmail.com  
+- **Email**: khanwaqas_12@hotmail.com  
 - **LinkedIn**: linkedin.com/in/muhammad-waqas-khan-a45a23287 
 - **Schedule a Call**: +923432551993 (Whatsapp)  
 
